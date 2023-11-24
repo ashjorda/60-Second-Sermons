@@ -1,0 +1,1 @@
+work out in the word, spiritual muscle over physical muscle

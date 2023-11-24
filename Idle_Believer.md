@@ -1,0 +1,1 @@
+What you hope for, is what you live for. 2nd Thessalonians summary 
