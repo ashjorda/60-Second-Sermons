@@ -1,12 +1,11 @@
 **Intro**
 
-Welcome to Ridgeview Student Ministries, we are so glad you’re here, I hope you are blessed in the Lord this evening. Tonight, I’m going to open us up with what some may call a 60 second sermon. A little more than 60 seconds, but something short and impactful hopefully . I recently heard an illustration by Tony Evans that I want to share with you all. 
+Welcome to Ridgeview Student Ministries, we are so glad you’re here, I hope you are blessed in the Lord this evening. Tonight, I’m going to open us up with a short illustration/bible verse. A little more than 60 seconds, but something short and impactful hopefully. I recently heard an illustration by Tony Evans when I was reading a devotional. Thought it was relevant to what Brian was preaching on last week out of John.  
 
 
 **Illustration**
 
-How many of you all know the rules of Baseball? Which base is the most important? If you said 1st base, you are right. Considering, when you hit the ball, and skip first base and run to 2nd, 3rd and home. You will be tagged out, because you didn't touch first. And the fact you touched the other bases don’t matter. In our lives, and most Christians might agree. Not enough of us touch first base often enough before we try to goto 2nd, 3rd or home plate in our lives. We wrestle with feelings that contradict what God says about us. We see the world through a lens in which God didn’t intend for us to, so all we see is and disorder and chaos. Our relationships aren’t what we expect them to be; life just doesn’t seem fair.
-Though have we ever considered this might be due to our miss-alignment in our priorities? 
+How many of you are responsible for taking out the trash in your house? 
 
 **The Point**
 
