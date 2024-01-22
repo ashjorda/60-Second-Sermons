@@ -5,20 +5,17 @@ Welcome to Ridgeview Student Ministries, we are so glad you’re here, I hope yo
 
 **Illustration**
 
-How many of you are responsible for taking out the trash in your house? 
+How many of you are responsible for taking out the trash in your house? What day is trash pickup? In my neighborhood, it's on thursdays. And my family is so kind to have the trash in the kictehn overflowing, letting me know I need to take it out, because they wont. *grins* So every wedenseday night, I make it my mission to ensure the trash is on the curb before 6:00 AM the next day. Because if its' not, the trash man won't pick it up. And not sure about you, but the trash man has never knocked on my door to have me open the garage so he could take my trash can and empty it. And overflowying trash in the garage, even when it's cold outside doesn't smell good. Especially not in the summer *pewwww*
 
 **The Point**
 
-If you haven’t figured it out by now what first base is. It’s our relationship with Jesus Christ. Imagine that if every day when we wake up, we would consider that a Homerun.  Then we run to first base, then we tackle our day by running to 2nd, 3rd, and home plate. How much sweeter would the outcome of our day be? Because first and foremost, the other bases would count. And our day would be in alignment with our calling from God. 
+Now, just like the trash man requires action. So does Jesus! Too often we carry around alot of trash, and we never take it out. And at somepoint, it starts to smell, which shows up in our actions, how we carry ourselves, and somtimes how we speak and treat others. It could be stress, uncertaintiy, worry about things we can't change, our identity or the feeling that you did something that you feel is 100% unforgiveable. The Good News is this, Jesus is also a trash man. And instead of having to pay to him picked up this type of trash, he says "Bring it to me, and I will give you rest". 
 
 **Bible Verse**
 
-Matthew 6:25-27 25 “Therefore I tell you, do not worry about your life, what you will eat or drink; or about your body, what you will wear. Is not life more than food, and the body more than clothes? 26 Look at the birds of the air; they do not sow or reap or store away in barns, and yet your heavenly Father feeds them. Are you not much more valuable than they? 27 Can any one of you by worrying add a single hour to your life?
-
-Matthew 6:33 33 ”But seek first his kingdom and his righteousness, and all these things will be given to you as well.”
+Matthew 11:28-30 ESV
+28 Come to me, all who labor and are heavy laden, and I will give you rest. 29 Take my yoke upon you, and learn from me, for I am gentle and lowly in heart, and you will find rest for your souls. 30 For my yoke is easy, and my burden is light.”
 
 **Conclusion**
 
-I think we can all agree that first base is equally important in our lives, as it is in baseball. As God’s promises never return void! And when we are in obedience to his word. God can do many things, but one thing he can’t be is 2nd base, 3rd base or home plate in our lives. He has to be first in all things. As we prepare to worship, and to receive the verbal living word of God. Let us touch first base by giving reverence to God through our singing and listening to Pastor Brian tonight.
-
-**Pray**
+Pastor Matt mentioned a word in his Sunday sermon. The word was entrophy, which means in a state of dissary or disorder. Entrophy can/will show up in our lives if we don't address it. So my message to you all is this, ensure you aren't living a life of entrhopy, and make sure  you are taking out the trash not only in your house but also in your life often. Because Jesus said, "Come to me". 
