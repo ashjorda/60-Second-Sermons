@@ -18,4 +18,4 @@ Matthew 11:28-30 ESV
 
 **Conclusion**
 
-Pastor Matt mentioned a word in his Sunday sermon. The word was entrophy, which means in a state of dissary or disorder. Entrophy can/will show up in our lives if we don't address it. So my message to you all is this, ensure you aren't living a life of entrhopy, and make sure  you are taking out the trash not only in your house but also in your life often. Because Jesus said, "Come to me". 
+Pastor Matt mentioned a word in his Sunday sermon. The word was entropy, which means in a state of dissary or disorder. Entropy can/will show up in our lives if we don't address it. So my message to you all is this, ensure you aren't living a life of entropy, and make sure  you are taking out the trash not only in your house but also in your life often. Because Jesus said, "Come to me". 
