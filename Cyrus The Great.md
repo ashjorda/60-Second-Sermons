@@ -4,7 +4,7 @@ According to the ancient historian Herodotus, Cyrus the Great, the founder of th
 
 **The Point**
 
-As Christains, it's important as individuals that we do our part. In ensuring we are always protecting ourselves with the Armor of God as stated in Ephesians 6. This Armor is free, and we are called to put it on daily. As not only protect our hearts, but our minds also. Considering the Devil knows all our weaknesses, and he will never stop trying to exploit them to keep us separated from our creator. Considering when we are out of sync with God, we are succeptable to the things Brian talked about at the winter retreat, sexual sin, false identity claims, etc. 
+As Christains, it's important as individuals that we do our part. In ensuring we are always protecting ourselves with the Armor of God as stated in Ephesians 6. This Armor is free, and we are called to put it on daily. As not only to protect our hearts, but our minds also. Considering the Devil knows all our weaknesses, and he will never stop trying to exploit them to keep us separated from our creator. Considering when we are out of sync with God, we are succeptable to the things Brian talked about at the winter retreat, such as sexual sin, false identity, etc. 
 
 **Bible Verse**
 
