@@ -1,11 +1,13 @@
 **Illustration**
+Does everyone in here know what wifi is? How it provides a connection to the World Wide Web of information. And alot of you, such as myself might interact with the internet via social media, such as Facebook, Instagram, Tik Tok, etc. And from those interactions, we take in alot of input in the form of media. Which in turn can have an effect on our world view. Which then transforms how we see the world, how we form opinions about various topics. This media influences our minds, which then influences our heart's. And once something enters our heart, it has the ability to control how we act towards others, and how we perceive ourselves. Now, I'm not saying the Internet is bad all in itself. But, It can have profound/everlasting effects on our lives if not used properly. 
 
+**Biblical Tie In**
+Now, how many of you know that the Bible dosent have wifi, but it has a Connection? Do we know to whom the bible informs a connection to? GOD! See, if I was to illustrate this. It would go like this. The wi-fi network name is "Jesus". The username is already known, because God already knows who we are. And the password, if you don't knwo it. God has it written down all throughout the bible. And the best part about this connection is, it comes with unlmited access to the Greatest Power/Authority in the World. And instead of using a web browser or social media app. All you have to do, to tap into this power is study the password, and Connect.  
+
+
+**Read Bible Verse (What defils a Person)**
+18 And he said to them, “Then are you also without understanding? Do you not see that whatever goes into a person from outside cannot defile him, 19 since it enters not his heart but his stomach, and is expelled?”[a] (Thus he declared all foods clean.) 20 And he said, “What comes out of a person is what defiles him. 21 For from within, out of the heart of man, come evil thoughts, sexual immorality, theft, murder, adultery, 22 coveting, wickedness, deceit, sensuality, envy, slander, pride, foolishness. 23 All these evil things come from within, and they defile a person.”
+Mark 7:18-23 
 
 **The Point**
-
-
-**Bible Verse**
-
-
-**Conclusion**
-
+As you can see, sin comes in many forms. And depending on our connection, one has the greatest propensity to increase the sin odds. Based on this, it's should be obvious which connection we need to prioritize. We should always want our hearts to be full of God, so that our actions will align with being a beacon of light for those around us. And to ensure we are secure in our identity. As Brian said last week, it's important we are a best friend to God, and not a best friend to the World!
