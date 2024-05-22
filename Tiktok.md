@@ -1,0 +1,9 @@
+In Genesis 1, it says "In the beginning, God created the heavens and the earth. 2 The earth was without form and void, and darkness was over the face of the deep. And the Spirit of God was hovering over the face of the waters."
+
+And in Genesis 26, it says, "26 Then God said, “Let us make man in our image, after our likeness. And let them have dominion over the fish of the sea and over the birds of the heavens and over the livestock and over all the earth and over every creeping thing that creeps on the earth.”
+
+So I pose a question, if you have a Tik Tok, Instgram, FB or other social media. Whats in your timeline?  Lots of influencers, trend settters, and creators. Then maybe, some of us imitating the same trends or buying what influencers are pushing. So that we can gain more followers, fans, or to imppress our friends?
+
+But within in this, something is missing. What's missing is the expression of the Creative Goodness we posses. As if you recall, Genesis 26 says "Let us make man in our image, after our likeness". But today, as a society we have suppressed the "creative" that we are born with.
+
+I'm here to tell you that because we are made in the in the image of a Creative God. Every time we do something, whether it be writing a song, writing a story, social media post (image or status). We are creating, as a Co-Creator with God. Because he created first, then we create with what he created on earth. And God is the One who works with you and through you to change other’s lives as believers. So based on what exist today on your Tiktok, FB, etc. If God inspected your Co-created work, whould he consider it Good? 
